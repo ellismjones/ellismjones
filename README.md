@@ -1,4 +1,4 @@
-### Hi! I'm Ellis (they/them ; -e/elu/delu)
+### Hi! I'm Rute (they/them ; -e/elu/delu)
 
 <div>
   <a href="https://github.com/nbycoder">
